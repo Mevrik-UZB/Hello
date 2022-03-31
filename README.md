@@ -1,2 +1,1 @@
-# Hello
-just practice
+Shukhratbek Today
